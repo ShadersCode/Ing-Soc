@@ -3,3 +3,4 @@ INGENIERIA Y SOCIEDAD
 
 INTEGRANTES:
 Denis Adriel **CHAMBI**
+Diaz Pariona Jhonathan **CHONA**
