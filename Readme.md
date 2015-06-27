@@ -1,4 +1,4 @@
-**Fatlan las preguntan 1,2,6 y 7**
+**Faltan las preguntan 1,2,6 y 7**
 
 ***
 
